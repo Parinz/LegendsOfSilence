@@ -62,7 +62,7 @@ Jane walked quietly out and just as the doctor finished his speech, she jumped o
 
 She then walked over to Snake. As she took notice of his flesh arm reaching for the pistol. *"You want to be killed by this? Too bad I you can't afford the luxury," she said as she kicked the pistol away under the curtains of the other patient. With her knife her hands, Jane crouched done held Snake's throat, preparing for to stab him.
 
-A breath later, however a shot rang out and a sharp pain can be felt as a bullet entered right arm. *"Sloppy aim. Should've went for the head," she thought as saw the patient holding the gun that she kicked. Before he could land a second shot however, she closed the distance and engaged in CQC with him. It turns out that the patient could very much hold his own and managed to put her in a force-choke postilion. However she used her momentum and threw the patient towards where Snake was. 
+A breath later, however a shot rang out and a sharp pain can be felt as a bullet entered right arm. *"Sloppy aim. Should've went for the head,"* she thought as saw the patient holding the gun that she kicked. Before he could land a second shot however, she closed the distance and engaged in CQC with him. It turns out that the patient could very much hold his own and managed to put her in a force-choke postilion. However she used her momentum and threw the patient towards where Snake was. 
 
 Unsheathing her knife again, she prepared to close the distance. The patient began throwing things at her, but it futile. However, he also threw a bottle of flammable liquid. *"I better not get burnt,"* she thought as she returned the favor with a knife throw to the patient's right arm.
 
