@@ -67,7 +67,7 @@ Moving her thoughts away from the moral dilemma, she thought about Skull Face. H
 *"The irony,"* she thought to herself. A man whom she tried to kill twice and failed saved her life. While the man who she looked up to as a distant father-figure had plagued her and sent her to die. Jane understood that she had to try to fool Skull Face that she was following his plans. At least until she could find a way to deactivate the nano-bots inside her.
 
 
-A thought made it's way into her mind, *"What if..."* But just as it came, it went. Jane shook her head, there was no way she would be doing *that*. In an attempt to put her mind to rest she observed her room. Ocelot, or whatever the cowboy's name was, had been kind enough to station female soldiers around her cell instead of male ones. Since she basically had to bath, in public, she was glad that the soldiers were female.
+A thought made it's way into her mind, *"What if..."* But just as it came, it went. Jane shook her head, there was no way she would be doing *that*. In an attempt to put her mind to rest she observed her room. Ocelot, or whatever the cowboy's name was, had been kind enough to station female soldiers around her cell instead of male ones. Not that either of them would be able to put up a fight, but since she basically had to bath, in public, she was glad that the soldiers were female.
 
 
-She laid back onto the bed, staring into the night sky.
+Left alone in her thoughts, she drifted away to sleep.
