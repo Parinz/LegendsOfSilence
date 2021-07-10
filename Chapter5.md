@@ -13,15 +13,25 @@ Quiet uncloaked behind Snake a looked through his shoulder, and he could tell, t
 
 
 > A trigger was pulled.
+
 > A woman oblivious.
+
 > But a solider knew.
+
+    
     
 > He grabbed and pulled her,
+
 > her waist on his,
+
 > as his arm went around her.
+
+    
     
 > Yet, he wasn't hers,
+
 > and she wasn't his.
+
 > Boy, wrong they were.
 
 
