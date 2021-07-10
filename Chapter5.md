@@ -12,17 +12,17 @@ As stood up beside Snake to observe what was happening, the laser dots moved ont
 Quiet uncloaked behind Snake a looked through his shoulder, and he could tell, that she knew this was not a common occurrence at Mother Base. Precisely at that moment, his years of combat-hardened senses caught something. A simple reflection, atop the Command Platform.
 
 
-    A trigger was pulled.
-    A woman oblivious.
-    But a solider knew.
+> A trigger was pulled.
+> A woman oblivious.
+> But a solider knew.
     
-    He grabbed and pulled her,
-    her waist on his,
-    as his arm went around her.
+> He grabbed and pulled her,
+> her waist on his,
+> as his arm went around her.
     
-    Yet, he wasn't hers,
-    and she wasn't his.
-    Boy, wrong they were.
+> Yet, he wasn't hers,
+> and she wasn't his.
+> Boy, wrong they were.
 
 
 A loud bang came into earshot just as Snake shielded Quiet with his body. His left arm had wrapped around her waist as he spun around and grabbed her. Quiet's reaction was not fast enough to prevent his grip, but she saw the sniper bullet enter the fleshy part of his left arm. Had he not grabbed her, it would've gone straight into her heart. Super-human or not, it would've killed her.
